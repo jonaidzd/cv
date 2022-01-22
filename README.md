@@ -1,3 +1,2 @@
 # jopw
-
-https://i.pinimg.com/originals/59/54/b4/5954b408c66525ad932faa693a647e3f.jpg
+file:///C:/Users/User/Downloads/st,small,845x845-pad,1000x1000,f8f8f8-modified.png
